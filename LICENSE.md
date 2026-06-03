@@ -1,4 +1,4 @@
-# 
+# Exclusive scalping trading bot add-ons for Mac OS | Premium scalping trading bot add-ons for PC Windows. Featuring liquidation detection and position sizing — optimized for maximum performance on every platform.
 
 
 
